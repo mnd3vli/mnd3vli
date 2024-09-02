@@ -20,5 +20,5 @@
     
 #### Language 
 
-- English : Fluent
-- Turkish : Native
+- English : Professional working proficiency
+- Turkish : Native or bilingual proficiency
