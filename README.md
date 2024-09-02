@@ -6,6 +6,7 @@
 - [https://linkedin.com/in/mnd3vli](https://linkedin.com/in/mnd3vli)
 - [https://x.com/mnd3vli](https://x.com/mnd3vli)
 - [https://github.com/mnd3vli](https://github.com/mnd3vli)
+- [https://www.youtube.com/@mnd3vli](https://www.youtube.com/@mnd3vli)
 
 ### Education
 
